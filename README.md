@@ -1,1 +1,1 @@
-## this will be a collection of my resumes/CVs
+## This will be a collection of my resumes/CVs
